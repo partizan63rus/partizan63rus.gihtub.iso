@@ -1,1 +1,1 @@
-# partizan63rus.gihtub.iso
+# partizan63rus.gihtub.io
